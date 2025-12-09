@@ -1,6 +1,6 @@
 # bywave官网地址
 
-最新地址：[by.ltd](https://user.by.ltd/aff.php?aff=28627) （bywave官网地址）
+最新地址：[by.ltd](https://u.by.ltd/aff.php?aff=28627) （bywave官网地址）
 
 **注意：有跑路风险，注意防范……**
 
