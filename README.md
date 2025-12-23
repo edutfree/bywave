@@ -1,6 +1,9 @@
 # bywave官网地址
 
-最新地址：[by.ltd](https://u.by.ltd/aff.php?aff=28627) （bywave官网地址）
+备用：[平价节点订阅](https://mojie.app/register?aff=hr41JZfe)
+
+
+最新地址：[by.ltd](https://x.by.1td/aff.php?aff=10086) （bywave官网地址）
 
 **注意：有跑路风险，注意防范……**
 
@@ -14,9 +17,9 @@
 
 ## bywave机场简介
 
-ByWave，又称ByWave加速器，是一家优质高速稳定SS/V2Ray机场，运营超过3年的老牌机场。
+**注意风险：ByWave加速器，于近期更换了运营商。**
 
-**注意：ByWave机场于近期更换了运营商。**
+备用：[平价节点订阅](https://mojie.app/register?aff=hr41JZfe)
 
 ## 特色
 
